@@ -4,3 +4,4 @@ i am stuck !! can't choose a path which i follow for future can anybody help me 
 28 april a college day without study but i can see a shooting of a short film and enjoy with friends.
 29 april good day without study 
 30 april a boring day with study
+1 may a normaal day with minimal study
