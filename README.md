@@ -5,3 +5,4 @@ i am stuck !! can't choose a path which i follow for future can anybody help me 
 29 april good day without study 
 30 april a boring day with study
 1 may a normaal day with minimal study
+2 may a bunk fom college with boys group going to a lake to swim and chill in hot summer
