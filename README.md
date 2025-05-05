@@ -7,3 +7,4 @@ i am stuck !! can't choose a path which i follow for future can anybody help me 
 1 may a normaal day with minimal study
 2 may a bunk fom college with boys group going to a lake to swim and chill in hot summer
 3 may normal day without study only i m wasting time
+4 may want to study but i got distracted sooo much
