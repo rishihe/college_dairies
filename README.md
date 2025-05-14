@@ -10,3 +10,4 @@ i am stuck !! can't choose a path which i follow for future can anybody help me 
 4 may want to study but i got distracted sooo much
 8 may i forgot about git hub and loss all the consistency !!
 got lossed all consistency
+endsem exam are close but no worried about it 
